@@ -20,8 +20,8 @@ I'm a Microsoft Office developer and freelancer with over 10 years of experience
 ## 🔗 Other Links
 
 - People Per Hour: [My Profile on PPH](https://www.peopleperhour.com/freelancer/technology-programming/osama-sobhi-microsoft-excel-word-powerpoint-mmmmnnq)
+- Freelancer.com: [My Profile on Freelancer](https://www.freelancer.com/u/Osama102?frm=Osama102&sb=t)
 - Upwork:          [My Profile on Upwork](https://www.upwork.com/freelancers/~019713f2abd0b33ae1)
-- Fiverr:          [My Profile on Fiverr](https://www.fiverr.com/osama103)
 - Behance:         [My Portfolio on Behance](https://behance.net/osamasobhy4)
 
 
